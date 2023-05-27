@@ -65,4 +65,4 @@ References:
 
 You can provide references if requested, but it's generally not necessary to include them on the resume itself.
 
-Prepare a separate list of references with their contact information to provide upon request.
+
