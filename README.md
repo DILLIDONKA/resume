@@ -59,3 +59,8 @@ If you have received any academic or non-academic awards or recognition, mention
 
 Highlight the significance of the awards and how they reflect your abilities or accomplishments.
 
+References:
+
+You can provide references if requested, but it's generally not necessary to include them on the resume itself.
+
+Prepare a separate list of references with their contact information to provide upon request.
