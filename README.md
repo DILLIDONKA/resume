@@ -5,6 +5,8 @@ I have skills in UI/UX design....HTML..CSS.. JAVASCRIPT..DATA STRUCTURES..REACTJ
 
 Please consider my Resume..if you need my skills..
 
+DESCRIPTION ABOUT THE RESUME :
+
 A resume for a fresher, or someone with little to no professional work experience, should focus on highlighting their education, relevant skills, and any internships, projects, or extracurricular activities that demonstrate their abilities and potential. Here is a general structure and description for a fresher's resume:
 
 Contact Information:
